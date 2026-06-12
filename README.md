@@ -174,7 +174,7 @@ Surfshark works on:
 As of June 2026, Surfshark is running some of its largest promotions ever, with discounts ranging from **86% to 88% OFF** plus bonus months on long-term plans.⁵⁻⁸
 <a href="https://shlink.net/surfshark"> <img src="https://raw.githubusercontent.com/cloudways-coupon/cloudways-coupon/refs/heads/main/src/coupons.png"> </a>
 
-## Best Surfshark Deal — 86% OFF + $ Months Free
+## Best Surfshark Deal — 86% OFF + 4 Months Free
 
 **Offer:**
 
